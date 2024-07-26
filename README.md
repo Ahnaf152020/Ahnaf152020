@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **ahnafamer15@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/15Kruh0qghD8Z_5G1UqS_M3qJkIwBNQMcHPupbo49PoI/edit](https://docs.google.com/document/d/15Kruh0qghD8Z_5G1UqS_M3qJkIwBNQMcHPupbo49PoI/edit)
+- 📄 Know about my experiences [https://docs.google.com/document/d/15Kruh0qghD8Z_5G1UqS_M3qJkIwBNQMcHPupbo49PoI](https://docs.google.com/document/d/15Kruh0qghD8Z_5G1UqS_M3qJkIwBNQMcHPupbo49PoI/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
